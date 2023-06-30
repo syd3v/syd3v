@@ -1,4 +1,4 @@
-# 👋 Hi, I’m @devsorwizards:
+# 👋 Hi, I’m @syd3v:
 ### I have a keen interest in how computers work and have been building knowledge on various parts of the eco-systems around computing
 ----------
 # 👀 I’m interested in:
